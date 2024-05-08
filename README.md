@@ -1,4 +1,3 @@
-Hello fellow human being.
+Hey there.
 
-discord no balls
-itsdakirby69#0000
+contact me thru discord itsdakirby69#0000
